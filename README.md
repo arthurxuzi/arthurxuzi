@@ -7,3 +7,5 @@ Meu nome é Arthur Schulze
 
 ### Voce entrar em contato comigo 📫
 arthur.schulze@escola.pr.gov.br
+
+![](https://media1.tenor.com/m/8utLEdu-XLcAAAAd/jeans-mom.gif)
