@@ -6,6 +6,6 @@ Meu nome é Arthur Schulze
    Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvovidos
 
 ### Voce entrar em contato comigo 📫
-arthur.schulze@escola.pr.gov.br
+arthur.schlz
 
 ![](https://media1.tenor.com/m/8utLEdu-XLcAAAAd/jeans-mom.gif)
